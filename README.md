@@ -1,1 +1,0 @@
-Praktikum_5-6_PengolahanCitraDigital_mfauziaf no 1
